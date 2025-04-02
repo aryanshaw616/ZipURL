@@ -14,7 +14,8 @@ Perfect for marketing campaigns, social media, and anywhere you need concise lin
 
 ### 🎨 See It in Action  
 → **Desktop View**  
-![image](https://github.com/user-attachments/assets/9a8e8b38-0baa-484a-82f3-420d18175093)
+![image](https://github.com/user-attachments/assets/b1b07a63-c88a-4e1a-97a8-6ed6c6dcf38a)
+
 
 
 ---
